@@ -146,4 +146,4 @@ As **Associate Project Manager**, I was responsible for:
 
 ---
 
-*Project documentation by AbdulMujeeb Agbaje | [LinkedIn](https://linkedin.com/in/abdulmujeeb-agbaje) | [Portfolio](https://gamma.app/docs/vy1a8b4e17x9a9b)*
+*Project documentation by AbdulMujeeb Agbaje | [LinkedIn](https://linkedin.com/in/abdulmujeeb-agbaje) | *
